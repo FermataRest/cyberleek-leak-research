@@ -1,12 +1,10 @@
-# Raw video and media binaries
-*.mp4
-*.mkv
-*.png
-*.jpg
-*.jpeg
-*.zip
-*.tar.gz
-
-# Python
-__pycache__/
-*.pyc
+.DS_Store
+Thumbs.db
+node_modules/
+*.tmp
+*.log
+*.env
+*.py
+*.json
+*.txt
+!sources.txt
