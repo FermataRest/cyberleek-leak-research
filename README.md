@@ -1,3 +1,6 @@
+# "UPDATE! 10/8/2026": CyberLeek has Released a 25 Minute "GTA 6 Extended-Leek Video!
+# Watch the Full Video Here!: https://rumble.com/v7glm2i-new-cyberleek-gta-6-leaks-10-08-2026.html
+
 # GTA 6 Leaks & Cyberleek Investigation Report
 
 A deep, evidence first investigation into the August 2026 *Grand Theft Auto VI* leaked videos and map images distributed through the Cyberleek project, the Solana blockchain, and the Arweave decentralized permaweb.
