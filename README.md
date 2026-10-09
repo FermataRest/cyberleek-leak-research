@@ -1,5 +1,5 @@
 # "UPDATE! 10/8/2026": CyberLeek has Released a 25 Minute "GTA 6 Extended-Leek" Video!
-Watch the Full Video Here!: https://rumble.com/v7glm2i-new-cyberleek-gta-6-leaks-10-08-2026.html
+# Watch the Full GTA 6 Extended-Leek Video Here!: https://rumble.com/v7glm2i-new-cyberleek-gta-6-leaks-10-08-2026.html
 
 # GTA 6 Leaks & Cyberleek Investigation Report
 
