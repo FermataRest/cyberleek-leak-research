@@ -1,5 +1,5 @@
 # WATCH ALL CYBERLEAK VIDEOS HERE!:
-[▶ Watch the CyberLeek video on Rumble](https://rumble.com/v7h1qb6-final-cyber-leek-gta6-leak-101826.html)
+[▶ Watch All CyberLeek Videos](https://rumble.com/v7h1qb6-final-cyber-leek-gta6-leak-101826.html)
 
 2. BACKUP: https://gamedrive.org/grand-theft-auto-vi-gta-6-cyberleek-leaks/
    
