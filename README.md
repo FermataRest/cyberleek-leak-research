@@ -1,10 +1,10 @@
 # WATCH ALL CYBERLEAK VIDEOS HERE!:
 1. MAIN: https://rumble.com/v7gsrvs-new-cyberleek-gta-6-leaks-101326.html
 2. BACKUP: https://gamedrive.org/grand-theft-auto-vi-gta-6-cyberleek-leaks/
-
+   
 ## Screenshot of Final CyberLeek Website
 
-![Screenshot of Final CyberLeek Website](https://i.imgur.com/Avq4gaL.jpeg)
+<img src="https://i.imgur.com/Avq4gaL.jpeg" alt="Screenshot of Final CyberLeek Website" width="100%">
 
 # GTA 6 Leaks & Cyberleek Investigation Report
 
