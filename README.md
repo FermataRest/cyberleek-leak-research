@@ -2,6 +2,10 @@
 1. MAIN: https://rumble.com/v7gsrvs-new-cyberleek-gta-6-leaks-101326.html
 2. BACKUP: https://gamedrive.org/grand-theft-auto-vi-gta-6-cyberleek-leaks/
 
+## Screenshot of Final CyberLeek Website
+
+![Screenshot of Final CyberLeek Website](https://i.imgur.com/Avq4gaL.jpeg)
+
 # GTA 6 Leaks & Cyberleek Investigation Report
 
 A deep, evidence first investigation into the August 2026 *Grand Theft Auto VI* leaked videos and map images distributed through the Cyberleek project, the Solana blockchain, and the Arweave decentralized permaweb.
