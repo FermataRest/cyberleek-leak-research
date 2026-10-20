@@ -1,7 +1,6 @@
 # WATCH ALL CYBERLEAK VIDEOS HERE!:
-[▶ Watch All CyberLeek Videos](https://rumble.com/v7h1qb6-final-cyber-leek-gta6-leak-101826.html)
 
-2. BACKUP: https://gamedrive.org/grand-theft-auto-vi-gta-6-cyberleek-leaks/
+[▶ Watch All CyberLeek Videos](https://rumble.com/v7h1qb6-final-cyber-leek-gta6-leak-101826.html)
    
 ## Screenshot of Final CyberLeek Website
 
@@ -418,6 +417,8 @@ This report was verified on August 19, 2026 using the following independent meth
 | DMCA takedowns | News reporting (PC Gamer, Kotaku) | Confirmed: active Take-Two DMCA enforcement |
 | GTA VI release date | Official Rockstar announcement | Confirmed: Nov 19, 2026 |
 
+
+2. BACKUP: https://gamedrive.org/grand-theft-auto-vi-gta-6-cyberleek-leaks/
 ---
 
 ## License
